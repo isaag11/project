@@ -1,0 +1,1 @@
+Going 2 b making a real nice website this time. First one was lacking sauce.
